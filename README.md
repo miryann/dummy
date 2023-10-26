@@ -1,1 +1,1 @@
- <img src="Image 26-10-2023 at 10.33.jpeg"> 
+<a href="https://secure.eicar.org/eicarcom2.zip">Click here</a>
